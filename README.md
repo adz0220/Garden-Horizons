@@ -1,5 +1,5 @@
 # Garden-Horizons
-Garden Horizons Auto Harvest Auto Sell Auto Buy Auto plant + more 
+Garden Horizons Auto Bontiast ! get fruit donate fruit ext  Auto Harvest Auto Sell Auto Buy Auto plant + more 
 updated regularly 
 
 free keyless system 
